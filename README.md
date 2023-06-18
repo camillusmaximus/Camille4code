@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Camille4code
+- 👋 Hi, I’m @camillusmaximus
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning for school
 - 💞️ I’m looking to collaborate on discord
